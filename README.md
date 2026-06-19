@@ -1,3 +1,5 @@
+<img width="1147" height="856" alt="image" src="https://github.com/user-attachments/assets/07260301-c533-4bc7-9ff3-884799b3f1cc" />
+
 # 👑 The King's Path — Em Busca da Coroa
 
 > *Somente o mais habilidoso conseguirá chegar até a coroa e se tornar o verdadeiro rei.*
